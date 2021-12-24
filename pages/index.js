@@ -37,7 +37,6 @@ Visit official website <a href="https://digitaleguide.com”>https://digitalegui
 <p>The credit card industry alone takes in over $10 billion in penalty fees (late fees, over limit fees, etc.) each year.</p>
 
 
-
 <h2>Credit Card Customer Care</h2>
 
 Digitaleguide.com provides this important information along with a bit about the various credit programs so that you can quickly contact the relevant company, resolve any issue you may have, or make your bill payment on time and avoid costly late fees.
